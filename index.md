@@ -5,7 +5,7 @@
 <a href="http://acl.wemusiclabel.com/" target="_blank">网址二</a> 　 
 <a href="http://acl.wemusiclabel.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ new! 分 享 网 址（* 请 收 藏）： <a href="http://geu.wemusiclabel.com/a.html">http://w.wss.cam</a></p>
+<p>◆ new! 分 享 网 址（* 请 收 藏）： <a href="http://gev.wemusiclabel.com/a.html">http://w.wss.cam</a></p>
 
 <p>◎ • 小 站：  
 <a href="http://pcp.wemusiclabel.com/f.html" target="_blank">网址一</a> 　 
